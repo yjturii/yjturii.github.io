@@ -1,1 +1,0 @@
-# yjturii.github.io
